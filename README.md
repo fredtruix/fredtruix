@@ -16,6 +16,7 @@
 - 📫 How to reach me **fredricktrust@gmail.com**
 
 - ⚡ Fun fact **I Love Opensource Contribution**
+bc1qkdpmy09f0uzkjhuzx44uuc5v4hdewrdhyun7ct
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
